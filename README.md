@@ -7,7 +7,7 @@
 **Thesis:** Despite Kenya's reputation as East Africa's financial hub, data suggests Ghana presents a superior risk-adjusted opportunity for patient capital deployment in 2026.
 
 **Author:** Mark Wema  
-**Date:** 4th June 2026  
+**Date:** 4th - 8th June 2026  
 **Analysis Universe:** 5 African markets (Kenya, Ghana, Nigeria, South Africa, Egypt)
 
 ---
